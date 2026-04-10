@@ -1,0 +1,1 @@
+# vision-signature-assets
